@@ -10,3 +10,6 @@ Ambot nimo boanga ka
 sorry sonasdasd
 
 shared 
+
+
+activity 2 push and pull
