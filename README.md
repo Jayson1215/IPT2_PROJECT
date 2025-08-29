@@ -8,3 +8,5 @@ Ambot nimo boanga ka
 
 
 sorry sonasdasd
+
+shared 
